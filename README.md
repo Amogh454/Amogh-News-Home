@@ -1,1 +1,1 @@
-# Amogh-s-News-Home
+# Amogh's-News-Home
